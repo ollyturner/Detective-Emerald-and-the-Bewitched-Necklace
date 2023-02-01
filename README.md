@@ -1,1 +1,1 @@
-# Detective-Emerald-and-the-Bewitched-Necklace
+# Detective Emerald and the Bewitched Necklace
